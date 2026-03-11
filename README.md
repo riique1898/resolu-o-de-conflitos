@@ -1,0 +1,1 @@
+# resolu-o-de-conflitos
